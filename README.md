@@ -1,6 +1,6 @@
 # 如何拯救英语厌恶晚期患者？
 
-[信息分析四期结业英语理论协作仓库](https://www.zotero.org/groups/2311046/english-learning-bp?)
+[信息分析四期zotero英语理论协作仓库](https://www.zotero.org/groups/2311046/english-learning-bp?)
 
 
 ## 目录
